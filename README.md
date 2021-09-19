@@ -1,2 +1,2 @@
 Резюме
-https://drive.google.com/file/d/1Alk_vihWPirBBFuKmEh-RRcCek9T8iv-/view
+https://drive.google.com/file/d/19XRYsz6_Tox5FBH3qgp6oLtj_UHoxpDh/view?usp=sharing
